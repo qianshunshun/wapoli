@@ -88,6 +88,8 @@ Bob Hasagawa的同学；
 
 4/25/2019，Committee投票支持了I-1000；
 
+4/18/2019，在采访中同意让I-1000上公投，后反悔；
+
 10/27/2014，瘾君子，[被前妻爆出曾经在大麻致幻的情况下带着孩子开车](https://www.seattletimes.com/seattle-news/stoned-driving-accusation-dogs-lawmakerrsquos-campaign/)；
 
 ---
