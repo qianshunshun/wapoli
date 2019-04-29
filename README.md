@@ -52,7 +52,7 @@ Bob Hasagawa的同学；
 
 4/29/2019，自称是Bob Hasegawa的朋友，民主党员；
 
-4/27/2019，[为Jenny Durkan助选](img/zuoma_jennydurkan.jpg)；
+4/27/2019，[为民主党极左翼候选人Jenny Durkan助选](img/zuoma_jennydurkan.jpg)；
 
 ---
 
@@ -61,7 +61,6 @@ Bob Hasagawa的同学；
 4/29/2019，在微信群讨论中认为华人反对I-1000不够成熟；
 
 ---
-
 
 #### Schoesler，参议员，有共和党倾向的民主党
 
