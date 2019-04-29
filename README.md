@@ -52,7 +52,7 @@ Bob Hasagawa的同学；
 
 4/29/2019，自称是Bob Hasegawa的朋友，民主党员；
 
-4/27/2019，[为民主党极左翼候选人Jenny Durkan助选](img/zuoma_jennydurkan.jpg)；
+4/27/2019，[为民主党极左翼候选人Jenny Durkan助选](img/zhuoma_jennydurkan.jpg)；
 
 ---
 
