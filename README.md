@@ -50,7 +50,7 @@ Bob Hasagawa的同学；
 
 #### 卓玛 唐人街四川同乡会会长（自称）
 
-4/29/2019，自称是Bob Hasegawa的朋友，民主党员；
+4/29/2019，自称是Bob Hasegawa的朋友，民主党员；[朋友圈扬言并跟东区华人决裂](img/zhuoma2.jpg)；
 
 4/27/2019，[为民主党极左翼候选人Jenny Durkan助选](img/zhuoma_jennydurkan.jpg)；
 
