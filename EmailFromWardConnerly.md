@@ -1,3 +1,4 @@
+Email from [Ward Connerly](https://en.wikipedia.org/wiki/Ward_Connerly) 
 
 “Let me also say that this whole I-1000 process has been extraordinarily heart-warming for me, 
 because of one fact.  In 1995, when I first challenged affirmative action at the University of California, 
