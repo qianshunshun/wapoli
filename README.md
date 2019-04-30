@@ -1126,5 +1126,10 @@ Bob Hasagawa的同学；
 
 4/28/2019，Floor投票支持了I-1000；
 
+---
+
+#### [Nathan Schneider](https://twitter.com/NSchneiderAZ13)
+
+4/29/2019，[发推说当天去反对I-1000的人都是无知的人](img/schneider_twtr_4_29.jpg)；
 
 ---
