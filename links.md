@@ -1,11 +1,12 @@
+### Facebook华大共和党联盟
 
-[After I-1000 passed Senator floor on 04/28](https://youtu.be/-pkkeSA4Sdc)
+发挥键盘侠优势的时候到了。上[Facebook华大共和党联盟主页](https://www.facebook.com/CollegeRepublicansUW/)，帮他们跟左疯辩论。
 
-#### 反对I-1000的参众议员
+### 反对I-1000的参众议员
 
 [Matt Shea 的发言，感觉他都要哭了！大家为他点赞！](https://youtu.be/LvnCSUh-Xi8)
 
-[感人肺腑的发言，我们最后给他鼓掌！](https://youtu.be/rqVnDapJKPs Brad Klippert)
+[感人肺腑的发言，我们最后给他鼓掌！](https://youtu.be/rqVnDapJKPs)
 
 [Hans Zeiger （R）](https://youtu.be/kCRNiktZ49k)
 
@@ -21,7 +22,7 @@
 
 [Brad Klippert testified against I-1000 on 04/25 House Committee Voting](https://www.youtube.com/watch?v=_5mH74Ax4ng&feature=youtu.be)
 
-#### 支持I-1000的参众议员：	
+### 支持I-1000的参众议员
 
 [Bob Hasegawa (D)](https://youtu.be/1h7G0GFXfU0)
 
@@ -29,9 +30,11 @@
 
 [Roger Goodman (D)](https://youtu.be/K8dxBHjE0q8)
 
+[After I-1000 passed Senator floor on 04/28](https://youtu.be/-pkkeSA4Sdc)
+
 [骆家辉 supported I-1000 at 04/18 hearing](https://youtu.be/MsTKUSg-iM0)
 
-##### YouTube channel 
+##### I-1000的YouTube channel 
 
 <https://www.youtube.com/channel/UC8JvHfQrubfxu9Sit3_l_dw>
 
