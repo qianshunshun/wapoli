@@ -34,6 +34,12 @@
 
 [骆家辉 supported I-1000 at 04/18 hearing](https://youtu.be/MsTKUSg-iM0)
 
+### 老兵与I-1000
+
+[Discussion of I-1000 impact on veterans at 04/18 hearing](https://youtu.be/5gQEUqTF-H0)
+
+[Sen. Kuderer lied about I-1000 impact to veterans](https://youtu.be/KabvP64Qig0)
+
 #### I-1000的YouTube channel 
 
 <https://www.youtube.com/channel/UC8JvHfQrubfxu9Sit3_l_dw>
