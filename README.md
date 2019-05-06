@@ -6,7 +6,7 @@
 
 #### 杨安泽 Andrew Yang
 
-9/15/2018，[发推公开支持AA，并认为亚裔高分学生没有价值](https://twitter.com/AndrewYang/status/1041017183244046336)[截图防删](img/andrewyang_support_aa_on_twitter.jpg)；别人我不评论，这个我真的不能忍了。如此的反智跟跪舔，真是华人的耻辱。看看下面的评论吧；
+9/15/2018，[发推公开支持AA，并认为亚裔高分学生没有价值](https://twitter.com/AndrewYang/status/1041017183244046336)（[截图防删]）(img/andrewyang_support_aa_on_twitter.jpg)；别人我不评论，这个我真的不能忍了。如此的反智跟跪舔，真是华人的耻辱。看看下面的评论吧；
 
 #### My-Linh Thai (D)，41区众议员
 
