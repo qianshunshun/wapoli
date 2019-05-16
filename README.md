@@ -20,6 +20,12 @@
 
 ---
 
+#### [Washington State Labor Council](http://www.wslc.org/)
+
+5/13/2019，华州工会组织 Washington State Labor Council[利用司法手段](img/wslc_5_13.jpg)拖延Referendum 88的时间
+
+---
+
 #### John Carlson
 
 10/6/2019，在Newcastle图书馆和Miloscia一起与华人举行见面会
