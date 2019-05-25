@@ -4,6 +4,14 @@
 
 ---
 
+#### 华州共和党执行委员（WSRP）
+
+5/17/2019，全票通过号召华州共和党人和组织支持R88上公投，并号召捐款。会上KCGOP现任主席Cynthia以及KCGOP前任主席Lori都说，亚裔需要我们的支持，共和党应该支持亚裔;
+
+#### 梁浩婷（Janice Zahn），Bellevue议员
+
+5/21/2019，获得连任，并得到前任骆家辉，国会议员Adam Smith，参议员Manka Dhingra，Bob Hasagawa，Joe Nguyen，Mona Das，以及Bellevue正副市長John Chelminiak，Lynne Robinson，Bellevue firefighters，副警长Steve Hirjak等的支持；
+
 #### 杨安泽 Andrew Yang
 
 9/15/2018，[发推公开支持AA，并认为亚裔高分学生没有价值](https://twitter.com/AndrewYang/status/1041017183244046336)（[截图防删](img/andrewyang_support_aa_on_twitter.jpg)）；别人我不评论，这个我真的不能忍了。如此的反智跟跪舔，真是华人的耻辱；
