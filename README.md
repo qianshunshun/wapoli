@@ -12,7 +12,7 @@
 
 #### 梁浩婷（Janice Zahn），Bellevue议员
 
-5/21/2019，获得连任，并得到前任骆家辉，国会议员Adam Smith，参议员Manka Dhingra，Bob Hasagawa，Joe Nguyen，Mona Das，以及Bellevue正副市長John Chelminiak，Lynne Robinson，Bellevue firefighters，副警长Steve Hirjak等的支持；
+5/21/2019，竞选连任，并得到前任骆家辉，国会议员Adam Smith，参议员Manka Dhingra，Bob Hasagawa，Joe Nguyen，Mona Das，以及Bellevue正副市長John Chelminiak，Lynne Robinson，Bellevue firefighters，副警长Steve Hirjak等的支持；
 
 #### 杨安泽 Andrew Yang
 
